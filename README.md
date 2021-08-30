@@ -1,7 +1,7 @@
 Project Links……
 
     Graphic and Web
-        https://www.linkerlogic.com/(https://www.linkerlogic.com/)
+        [https://www.linkerlogic.com/](https://www.linkerlogic.com/)
         https://tgcmgmt.com/
         https://goodbit101.com/
         https://www.yourlocalgreens.com/
